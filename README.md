@@ -19,5 +19,7 @@ Les valises à peine déposées à l'hôtel, nous nous sommes précipités vers 
 Les cartes furent distribuées, et l'excitation était palpable dans la salle du tournoi. Assis à ma table, entouré de visages concentrés et déterminés, je sentais le poids de chaque décision. Les heures passaient comme des minutes, et les jetons circulaient. Les premiers gains me donnèrent un regain de confiance. Mes amis et moi nous retrouvions à chaque pause, partageant nos succès et nos stratégies. Le rêve de conquérir Vegas semblait de plus en plus à portée de main.
 
 
+## Le Commencement de l'Aventure
 
+Les rues de Vegas résonnaient de rires et de musique, tandis que nous explorions chaque casino, chaque spectacle avec une curiosité insatiable. Les lumières scintillantes et l'atmosphère électrisante nous enveloppaient, nous poussant à vivre chaque instant pleinement. Le tournoi n'était plus un simple événement, mais le cœur de notre aventure, une quête partagée entre amis, prêts à défier la chance et à saisir notre destin.
 
