@@ -11,3 +11,11 @@ Parti avec des amis, on regardait tous les lumières somptueuses en nous disant 
 Et je savais que cette année serait très spéciale !
 
 ## Au suivant
+
+Les valises à peine déposées à l'hôtel, nous nous sommes précipités vers les casinos &#x1F911; , éblouis par les néons ***scintillants*** et l'ambiance électrique de Vegas. Les premières heures ont été un tourbillon d'émotions et de rires, chaque coin de rue promettant une nouvelle aventure. Le tournoi approchait, et l'adrénaline montait en moi. Avec mes amis à mes côtés, je sentais que rien ne pouvait m'arrêter. Cette année, c'était la nôtre, et j'étais prêt à saisir chaque opportunité qui se présenterait.
+
+
+
+
+
+
