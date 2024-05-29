@@ -23,3 +23,10 @@ Les cartes furent distribuées, et l'excitation était palpable dans la salle du
 
 Les rues de Vegas résonnaient de rires et de musique, tandis que nous explorions chaque casino, chaque spectacle avec une curiosité insatiable. Les lumières scintillantes et l'atmosphère électrisante nous enveloppaient, nous poussant à vivre chaque instant pleinement. Le tournoi n'était plus un simple événement, mais le cœur de notre aventure, une quête partagée entre amis, prêts à défier la chance et à saisir notre destin.
 
+## La Fin du Tournoi
+
+Après des jours d'intenses duels de cartes et de montagnes russes émotionnelles, le moment tant attendu était enfin arrivé : la finale des tournois. Je me retrouvais face à des adversaires redoutables, mais ma détermination était inébranlable. Chaque main jouée était un pas de plus vers la victoire, chaque décision un test de ma résilience.
+
+Et puis, dans un moment de pure magie, j'ai réussi à remporter le tournoi principal, emportant avec moi le titre tant convoité et une somme d'argent qui dépassait mes rêves les plus fous. Mes amis étaient là pour célébrer avec moi, et ensemble, nous avons levé nos verres à cette aventure incroyable à Vegas.
+
+Quand je repense à ces vacances à Vegas, je me souviens non seulement de la gloire du tournoi, mais aussi des moments partagés avec des amis, des rires, et de la sensation de vivre pleinement chaque instant. Car après tout, ce qui se passe à Vegas, reste à jamais gravé dans nos cœurs.
